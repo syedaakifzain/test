@@ -1,4 +1,4 @@
 # test
 
 
-this repo was created lab
+this repo was created in lab
