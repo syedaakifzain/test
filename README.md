@@ -10,4 +10,4 @@ i think i'll be using this repo for contribution and streak purpose...
 when i have nothing to contribute i'll just update this Readme file
 
 i think human consiousness is a tragic misstep in human evolution 
-nature created 
+nature created an aspect
