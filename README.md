@@ -13,3 +13,4 @@ i think human consiousness is a tragic misstep in human evolution,
 nature created an aspect seperate from itself, 
 
 we are the creatures that should not exist by the natural law...
+sdfghjkl;
